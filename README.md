@@ -1,3 +1,3 @@
 # kriti
-lethrblaka
-arnab sinha
+Lethrblaka
+Arnab Sinha
