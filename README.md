@@ -1,3 +1,3 @@
 # kriti
 Lethrblaka
-Arnab Sinha
+Arnab sinha
